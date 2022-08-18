@@ -1,2 +1,2 @@
 # collliade-webword
-This is where i am going to be putting my information in 
+the information based on my website launching for more update 
